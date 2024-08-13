@@ -1,4 +1,4 @@
-### abt me <3 
+### abt me 🎧
 
 - first year uni student @ uregina
 - very new to github but I'm excited to learn what it can do :)
